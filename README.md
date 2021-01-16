@@ -1,0 +1,2 @@
+# spectremovie.uz
+spectremovie.uz
